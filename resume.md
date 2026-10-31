@@ -1,0 +1,1 @@
+I am Aidan Frenck. I attended Archmere Academy in Claymont, Delaware for four years before graduating from it. I am a freshman at Northeastern University with a combined major of Computer Science and Game Development. I am eager to learn new programs and ways to code.
